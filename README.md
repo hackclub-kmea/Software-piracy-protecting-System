@@ -1,3 +1,5 @@
 # Software-piracy-protecting-System
 ## Members
-Sadhik TS
+Ashique Sherief  
+Sadhik TS  
+
